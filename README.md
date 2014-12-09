@@ -1,4 +1,1 @@
-mystic
-======
-
-My first work.
+Hi. I am Ashutosh Sharma. I am studying doctorate in Civil Engineering from Thapar University, Patiala, Punjab, India. My hometown is sorrounded by Himalayas in the state of Jammu and Kashmir, India. I love reading books, Listening to music, Travelling and photography. I am very excited about this course.
